@@ -1,2 +1,2 @@
-# olgasudareva.com
+# olgasudareva.org
 Professional Website for Olga Sudareva
